@@ -1,4 +1,4 @@
-# Download Free Fire MAX Mod APK v2.108.1 Unlimited Moeny And Hack King Free For Android New 2025
+# Download Free Fire MAX Mod APK v2.108.1 Unlimited Diamonds And Hack King Free For Android New 2025
 
 ## What is Free Fire MAX Mod APK?  
 Free Fire MAX is a thrilling battle royale game designed for Android players who crave action and survival challenges. In this game, players land on an isolated island and compete to be the last survivor. Packed with intense gameplay, stunning graphics, and strategic battles, Free Fire MAX Mod APK offers an enhanced version of the popular **Garena Free Fire MAX**.  
